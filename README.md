@@ -1,4 +1,4 @@
-- Hi, my nick is StarCatBR, but you can call me Vi 😊
+- Hi, can call me Vi 😊
 - I'm Brazilian
 - I'm beginner
 
